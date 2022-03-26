@@ -1,2 +1,2 @@
 # artwork
-My artwork
+various pixel arts by me
